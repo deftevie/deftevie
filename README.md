@@ -1,8 +1,8 @@
     w e l c o m e ♡
-— — — — ˗ˋ ୨୧ ˊ˗ — — — —
+
 ૮₍˶ •. • ⑅₎ა ♡ [evie] ⌗ °. ♡ ꒰⸝⸝ [she/her] ꒱
-❏ ⇢ [i talk too much] 
-＞＜﹐🔗 @K ♡
+ ❏ ⇢ [i talk too much] 
+ ＞＜﹐🔗 @K ♡
 
 
     deftevie/deftevie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
